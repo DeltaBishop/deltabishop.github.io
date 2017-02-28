@@ -1,1 +1,0 @@
-# deltabishop.github.io
